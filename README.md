@@ -1,2 +1,0 @@
-# Ivan Mrekaj
-## experience
